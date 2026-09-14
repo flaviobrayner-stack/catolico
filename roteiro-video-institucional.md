@@ -56,7 +56,7 @@ Começar com ritmo contemplativo. Usar uma transição luminosa na passagem para
 
 **Locução**
 
-> Conheça O Caminho da Fé. Um aplicativo com mais de 30 caminhos e fases progressivas para crianças, jovens e adultos.
+> Uma jornada de formação católica com mais de 30 caminhos, fases progressivas, conteúdos sobre a Bíblia, a Igreja, os santos, os sacramentos, a oração, a liturgia e a caridade — além de jogos e desafios.
 
 **Edição**
 
@@ -147,7 +147,7 @@ Fazer a trilha crescer até a exibição da oferta. Aplicar uma animação pulsa
 
 > Aprender sobre a fé católica não precisa ser difícil ou cansativo. E se você pudesse carregar uma jornada de formação completa no seu bolso?
 >
-> Conheça O Caminho da Fé. Um aplicativo com mais de 30 caminhos e fases progressivas para crianças, jovens e adultos.
+> Uma jornada de formação católica com mais de 30 caminhos, fases progressivas, conteúdos sobre a Bíblia, a Igreja, os santos, os sacramentos, a oração, a liturgia e a caridade — além de jogos e desafios.
 >
 > Você responde aos desafios, acumula pontos e avança. O formato de liberação diária ajuda você a criar um hábito real de estudo e oração.
 >
